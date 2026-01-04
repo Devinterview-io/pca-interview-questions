@@ -1,4 +1,4 @@
-# 48 Must-Know PCA Interview Questions in 2025
+# 48 Must-Know PCA Interview Questions in 2026
 
 <div>
 <p align="center">
